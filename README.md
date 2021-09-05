@@ -1,1 +1,0 @@
-# Ujja-India-Template
